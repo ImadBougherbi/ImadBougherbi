@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on my Project  for PFE
 - 📫 How to reach me Gmail or IG or FB 
 GM: Takumiyushi98@gmail.com
-IG:Checo Skydiver 
-FB:Checo Skydiver
+IG:no._.one1997
+FB:Imad Eddine Brb
 Snap:Checo 🔥🤞☝️
 
 <!---
